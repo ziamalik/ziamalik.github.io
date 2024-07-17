@@ -1,1 +1,1 @@
-# ziamalik.github.io
+[Latest Resume](ZiaMalikResume.pdf)
